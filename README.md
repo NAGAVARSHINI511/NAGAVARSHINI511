@@ -11,7 +11,7 @@
 
 - 🌱 I’m currently learning **c++ and python**
 
-- 🤝 I’m looking for help with **my learning**
+- 🤝 I’m looking for help with **my learning and growing**
 
 - 📫 How to reach me **nagavarshini511@gmail.com**
 
