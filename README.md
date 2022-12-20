@@ -16,6 +16,7 @@
 - 📫 How to reach me **nagavarshini511@gmail.com**
 
 - ⚡ Fun fact **I have a epic style**
+- **TRUST THE PROCESS**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
